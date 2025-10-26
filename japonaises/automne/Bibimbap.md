@@ -1,4 +1,4 @@
-## 🍁 **Bibimbap d’automne (végétarien, chaud, riche en umami)**
+##  **Bibimbap d’automne (végétarien, chaud, riche en umami)**
 
 **Temps total :** 40 min
 **Niveau :** facile
